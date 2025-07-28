@@ -10,7 +10,7 @@ Ang **Expert Option** ay isang nangungunang **online trading platform** na nagbi
 
 Sundin ang mga simpleng hakbang na ito para makuha ang iyong **eksklusibong bonus offer** at makapagsimula sa trading gamit ang karagdagang kapital:
 
-1. Pumunta sa [special link](https://r.shortlify.com/?prefid=1014038001&brand=Bgjcgw).
+1. Pumunta sa [special link](https://tinyurl.com/expopt).
 2. Magrehistro ng bagong account sa Expert Option platform.
 3. Ipasok ang promo code na G1014038001 kapag magde-deposit.
 4. Makakakuha ng **120% deposit bonus** para madagdagan ang iyong trading balance.
@@ -30,7 +30,7 @@ Halimbawa, kung magdeposit ka ng $100, magiging $220 ang iyong account balance â
 
 - **Mas Malaking Trading Capital**: Mas maraming pondo para sa pag-execute ng trades sa ibaâ€™t ibang merkado.
 - **Walang-Panganib na Pagsubok**: Subukan ang iba't ibang **trading strategies** nang hindi isinusugal ang buong deposit.
-- **Eksklusibong Welcome Bonus**: Ang promo code na G1014038001 ay gumagana lamang sa pamamagitan ng [referral link na ito](https://r.shortlify.com/?prefid=1014038001&brand=Bgjcgw).
+- **Eksklusibong Welcome Bonus**: Ang promo code na G1014038001 ay gumagana lamang sa pamamagitan ng [referral link na ito](https://tinyurl.com/expopt).
 - **Access sa Advanced Tools**: Masiyahan sa mga tampok tulad ng **technical analysis**, trading charts, at signals.
 - **Perpekto para sa Mga Baguhan**: Mainam sa mga gustong matuto ng binary options nang mas kaunti ang risk.
 
@@ -54,11 +54,11 @@ Subukan din ang iba pang platforms na may eksklusibong promos at bonus:
 
 ## Konklusyon
 
-Huwag palampasin ang pagkakataong simulan ang iyong **trading journey** na may mas malaking kapital. Gamitin ang promo code na G1014038001 sa pamamagitan ng [official link na ito](https://r.shortlify.com/?prefid=1014038001&brand=Bgjcgw) at makuha ang **120% na unang deposit bonus**. Baguhan ka man sa binary options o isa nang bihasang trader, ang **limited-time offer** na ito ay nagbibigay ng malaking advantage. Maging matalino sa pag-trade at palaguin ang iyong kita!
+Huwag palampasin ang pagkakataong simulan ang iyong **trading journey** na may mas malaking kapital. Gamitin ang promo code na G1014038001 sa pamamagitan ng [official link na ito](https://tinyurl.com/expopt) at makuha ang **120% na unang deposit bonus**. Baguhan ka man sa binary options o isa nang bihasang trader, ang **limited-time offer** na ito ay nagbibigay ng malaking advantage. Maging matalino sa pag-trade at palaguin ang iyong kita!
 
 > **Paalala:** Siguraduhing basahin ang **bonus terms and conditions** bago mag-trade. Tandaan, may panganib ang trading at posibleng malugi ang iyong kapital.
 
-[![Expert Option Bonus](https://cdn.getprofit.com/b/184.jpg)](https://r.shortlify.com/?prefid=1014038001)
+[![Expert Option Bonus](https://cdn.getprofit.com/b/184.jpg)](https://tinyurl.com/expopt)
 
 ---
 
